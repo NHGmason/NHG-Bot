@@ -1,3 +1,3 @@
 # NHG-Bot
 
-heyho Minecraft Freunde Yes Sir
+heyho Minecraft Freunde Yes Sir.
